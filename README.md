@@ -5,10 +5,6 @@ This is my personal website. I'm a data scientist in his last quarter at Syracus
 Shout out to Midjourney--ChatGPT's little brother--for creating this beautiful avatar of me. I described myself to the robot, and this is
 what it spit out. To try Midjourney for yourself, check out https://www.midjourney.com/home/ -- you'll have to download Discord.
 
-If you're bored and want to read some critical theory, check out this peer-reviewed article I published in 2020, a 
-Lecture Notes on Computer Science essay predicting the ChatGPT trend: "Digital Humanities Scholarship: A Model for Reimagining Knowledge Work
-in the 21st Century."
-
 ---
 
 I thought of a joke to keep you entertained while you're waiting for the next deployment version of my website. The joke is:
