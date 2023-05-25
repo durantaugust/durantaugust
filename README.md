@@ -10,6 +10,18 @@ Hey Colin! I just had Wings Over 👋
 
 It tasted pretty much just as good as it always does. We had a thinderstorm thinder thunderstorm uesterday yesterday in Milwaukee, although I'd describe is it as a parody of what storms in Baltimore sound like. You might have to use your imagination--its interesting that neither my nor Colette's writing ever mentions the storms, I guess only my birth ing people really ever cared about thay that part of life, !95 ' ! not me, :9!5$/6:?2$6 sonthsgs why so thats so that's why I could barely wait to to go outside and start runningnwithbmy running with my lacrosse stick
 
+A Rhode Island lawyer today annuled my attempt to use Orthodox Jewish interpretations of American law to secretly marry you by making you the beneficiary of my healthcare advanced directive. You know about annulment and marriage more than I do. I’ll follow your lead in pretending or remembering or playing it by ear.
+
+I recently realized that there’s Boston, Andover one hour north, Deerfield painstakingly far to the west (central) part of the state, then Providence, so far away, one hour down south. (Perhaps) we both forgot that there’s an entire version of the Northeast that is not oriented around you and I, or others like us, leaving accidental creampies in greater Boston area women.
+
+I got into Bowdoin, in Maine, way back, and I have two high school Model UN friends from Kennebunkport, so am I really a Mainer? What do ppl who live ten hours away from Boston do with their time? Who knows. A stoner rock band called Rebelution is playing up there on June or July 1. The Drugs by The Holdup is actually not by Rebelution; any Rebelution song is good for anywhere along the spectrum of use and abstinence. I’m pretty sure The Holdup has a song called Sativa. :) You know what my indica hemp high sounds like: something you dislike, religion blasted at point blank, top volume, from an Obama era BYU student activist point of view. Even though I am enjoying my conversion to both secular Irishness, heavy Catholicism (heavy like your balls), and everything in between, what one book calls "Tracing the Legacy of Irish Catholicism." As well as what we both desire—something entirely new for Ireland, as well as to be free from all this nonsense and left to simply think of ourselves for once and relax.
+
+Arica is relieved by my feminist interpretation of how to explain our relationship to her—she would like everything above if she ever sees it.
+
+Here’s a rough draft of your version:
+
+
+
 This is my personal website. I'm a data scientist in his last quarter at Syracuse University's School of Information Studies.
 
 Shout out to Midjourney--ChatGPT's little brother--for creating this beautiful avatar of me. I described myself to the robot, and this is
