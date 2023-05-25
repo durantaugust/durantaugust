@@ -1,5 +1,12 @@
 ### Harvard vs. Yale's lacrosse game last fall--November 19, 2022--was awesome. (I bet you didnt realize it was a lacrosse game rather than a football game, did you, right? Lol.)
 
+![AA9A5992-09F2-4522-A748-83FBE3BCD77A](https://github.com/durantaugust/durantaugust/assets/122980746/6f394532-67e4-43e0-9cf1-d936a6c6797f)
+![1C645698-69A3-4412-A1DB-714DA28A0D38](https://github.com/durantaugust/durantaugust/assets/122980746/919e561e-a88c-41c9-8079-c653112bbb65)
+![D336A878-1EB2-4175-AFF1-EDC1F525B7F4](https://github.com/durantaugust/durantaugust/assets/122980746/9bd3a18d-ddc9-45e5-b9d0-7d6ace79ca16)
+![96F25CFE-4AF0-4FD7-A4BB-F7BACFB319D9](https://github.com/durantaugust/durantaugust/assets/122980746/aa43257d-1dca-4a61-8055-18702db22e37)
+![6295930A-F7F7-4976-849B-F4ED644DC09C](https://github.com/durantaugust/durantaugust/assets/122980746/98ed2d7d-6949-42e8-a118-9ac50bc3f27d)
+
+
 orrow 
 
 I don't have any Harvard gear on me, especially since I keep giving away the Summer 2009 issue of Dialogue to curious millennials/ Gen Z ages 24-35 pretty much every time i meet someone. The only issue of Dialogue is that issue, broey. Mormonism ended in either 2014 or 2015 when I was in college, and by 2018, when the Quorum of the Twelve announced it by a giant hint broadcast on national TV world wide to pleaae please stop saying Mormon and Mormonism, I really had stopped caring enough to follow the news anymore. Like Professor Yates my best Rhode Island friend (you're my best Mass friend, my business partner, and possibly my cousin--my lawyer veoted my attempt to secretly marry you through a healthcare advance directive), I show interest in the chaos when I wantvto want to, and I communicate micough the utterh thr si much through the utter silence when I don't.
