@@ -1,4 +1,12 @@
-### Hi everyone 👋
+### Harvard vs. Yale's lacrosse game last fall--November 19, 2022--was awesome. (I bet you didnt realizs it was a lacrosse did you, right? Lol.)
+
+Even before meeting you for thr the firsr tjme, 8 2// i /// I was aleeast alteady already holding court on the way I should be dressed. 
+
+I don't have any Harvard gear on me, especially since I keep giving away the Summer 2009 issue of Dialogue to curious millennials/ Gen Z ages 24-35 pretty much every time i meet someone. The only issue of Dialogue is that issue, broey. Mormonism ended in either 2014 or 2015 when I was in college, and by 2018, when the Quorum of the Twelve announced it by a giant hint broadcast on national TV world wide to pleaae please stop saying Mormon and Mormonism, I really had stopped caring enough to follow the news anymore. Like Professor Yates my best Rhode Island friend (you're my best friend, business partner, and possibly my cousin--my lawyer veoted my attempt to secretly marry you 
+
+Hey Colin! I just had Wings Over 👋
+
+It tasted pretty much just as good as it always does. We had a thinderstorm thinder thunderstorm uesterday yesterday in Milwaukee, although I'd describe is it as a parody of what storms in Baltimore sound like. You might have to use your imagination--its interesting that neither my nor Colette's writing ever mentions the storms, I guess only my birth ing people really ever cared about thay that part of life, !95 ' ! not me, :9!5$/6:?2$6 sonthsgs why so thats so that's why I could barely wait to to go outside and start runningnwithbmy running with my lacrosse stick
 
 This is my personal website. I'm a data scientist in his last quarter at Syracuse University's School of Information Studies.
 
