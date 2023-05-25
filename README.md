@@ -2,7 +2,7 @@
 
 Even before meeting you for thr the firsr tjme, 8 2// i /// I was aleeast alteady already holding court on the way I should be dressed. 
 
-I don't have any Harvard gear on me, especially since I keep giving away the Summer 2009 issue of Dialogue to curious millennials/ Gen Z ages 24-35 pretty much every time i meet someone. The only issue of Dialogue is that issue, broey. Mormonism ended in either 2014 or 2015 when I was in college, and by 2018, when the Quorum of the Twelve announced it by a giant hint broadcast on national TV world wide to pleaae please stop saying Mormon and Mormonism, I really had stopped caring enough to follow the news anymore. Like Professor Yates my best Rhode Island friend (you're my best friend, business partner, and possibly my cousin--my lawyer veoted my attempt to secretly marry you 
+I don't have any Harvard gear on me, especially since I keep giving away the Summer 2009 issue of Dialogue to curious millennials/ Gen Z ages 24-35 pretty much every time i meet someone. The only issue of Dialogue is that issue, broey. Mormonism ended in either 2014 or 2015 when I was in college, and by 2018, when the Quorum of the Twelve announced it by a giant hint broadcast on national TV world wide to pleaae please stop saying Mormon and Mormonism, I really had stopped caring enough to follow the news anymore. Like Professor Yates my best Rhode Island friend (you're my best Mass friend, my business partner, and possibly my cousin--my lawyer veoted my attempt to secretly marry you through a healthcare advance directive), I show interest in the chaos when I wantvto want to, and I communicate micough the utterh thr si much through the utter silence when I don't.
 
 Hey Colin! I just had Wings Over 👋
 
